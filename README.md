@@ -1,3 +1,2 @@
 # belajar-kolaborasi sangat mudah
-dan menyenangkan
-suka
+saya sangat suka belajar di dicoding dan juga kamu apalagi gw
